@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @cuuuuurt
+IM JUST A NORMAL PROGRAMMER🤫⚒️
+I AIN'T DOING CYBERCRIME
+(AND WHO ARE YOU?)
+
+         🖕🏿
