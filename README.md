@@ -1,6 +1,5 @@
-- 👋 Hi, I’m @cuuuuurt
-IM JUST A NORMAL PROGRAMMER🤫⚒️
-I AIN'T DOING CYBERCRIME
-(AND WHO ARE YOU?)
+👋🏻 hey! Im Curt
+Im learning how to program if you want to help me just dm me in IG-cuu.uurt
+I know a lil bit.a while ago im doing cybercrimes but now i want to know how to code lol
 
-         🖕🏿
+
